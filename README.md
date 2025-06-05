@@ -5,4 +5,3 @@
 👯 I’m looking to collaborate on projects.
 🤔 I’m looking for help with contributing my ideas.
 😄 Pronouns: He/his
-⚡ Fun fact: I'm a bit shy by nature.
